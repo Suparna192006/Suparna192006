@@ -1,5 +1,5 @@
 # 💫 About Me:
-im suparna bhattacharjee<br>currently studying in kristu jayanti university,bengaluru<br>aspired software devloped and passionate learner.<br>
+I am Suparna Bhattacharjee<br>Currently pursuing BCA in Kristu Jayanti University,Bengaluru<br>Aspired Software Devloped and Passionate Learner.<br>
 
 
 ## 🌐 Socials:
